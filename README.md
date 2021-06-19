@@ -1,4 +1,4 @@
-# Reading-Notes-
+# Reading-Notes
 
 ## All my reading notes for all classes 
 
